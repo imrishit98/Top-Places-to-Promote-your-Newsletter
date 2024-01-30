@@ -13,6 +13,7 @@ Explore our list of top places where you can promote your newsletters! This reso
  | [Newsletter Junkie](https://newsletterjunkie.com)          | [Submit now](https://newsletterjunkie.com)                             | Free     | 9K      |
  | [Substats](https://www.substats.com/)                      | [Submit now](https://www.substats.com/add-newsletter)                  | Free     | 3k      |
  | [Rad Letters](https://www.radletters.com/)                 | [Submit now](https://www.radletters.com/add-newsletter)                | Free     | 4K      |
+ | [Newsletters Directory](https://newslettersdirectory.com/) | [Submit now](https://newslettersdirectory.com/add-newsletter/)         | Free     | 8K      |
  | [Stackletter](https://stackletter.com/)                    | [Submit now](https://stackletter.com/submit)                           | Free     | -       |
  | [Thanks for Subscribing](https://thanksforsubscribing.app) | [Submit now](https://thanksforsubscribing.app/submit-your-newsletter/) | Free     | 15K     |
  
